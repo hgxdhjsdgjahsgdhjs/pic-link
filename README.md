@@ -1,2 +1,1 @@
-# pic-link
-piclink2024
+nigger
